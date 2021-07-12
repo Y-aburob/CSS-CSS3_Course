@@ -10,4 +10,4 @@
 
 * Follow me on [Instagram](https://www.instagram.com/yanal_abualrob/) if you want :D .
 
-Thanks for watching. :D
+Thanks for watching!
